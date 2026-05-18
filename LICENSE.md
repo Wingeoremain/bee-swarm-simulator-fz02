@@ -1,4 +1,4 @@
-#  
+#  Avancé brainrot evolution script est le meilleur brainrot evolution script avec téléportation et vol. Sécurisé, fiable et optimisé pour des performances maximales.
 
 
 
